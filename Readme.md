@@ -1,0 +1,1 @@
+Link to Figma: https://www.figma.com/file/arz61uBwbHDtNYhinkyhZH/Jewelry-Website?type=design&node-id=402-47
